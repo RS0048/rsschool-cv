@@ -1,11 +1,11 @@
 **Sokolov Roman**
 
-
+***********
 **Contact information:**
 Phone number: +79096307257
 Telegram: @RS0048
 
-
+***********
 **Education:**
 * 2006-2012 NUST MISIS, Engineer of theoretical physics
 
